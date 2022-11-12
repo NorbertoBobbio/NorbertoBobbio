@@ -22,9 +22,13 @@
 
 ### :woman_technologist: Sobre Mim :
 🤓 Norberto Pacheco
+
 📆 32 Anos
+
 🧑‍🎓 Licenciado Em Sociologia pelo ISPSN-HUAMBO e Estudante do 2º ano de Ciencia da Computação
+
 💑 Casado
+
 💼 Chefe de Secção de Finanças Orçamento e Contratação Pública na Administração Municipal da Caála, C.O da Empresa LPF,Lda
 
 
